@@ -1,1 +1,0 @@
-# GgoomNamoo.github.io
